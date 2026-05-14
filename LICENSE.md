@@ -1,4 +1,4 @@
-# 
+# Enhance your Polymarket trading with Polymarket professional Algorithm: scalping-strategies & event-driven-trading, the #1 algorithm. Includes scalping-strategies and
 
 
 
